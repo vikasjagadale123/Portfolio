@@ -1,3 +1,3 @@
-I have added all the projects along with the raw data file for better clarity and understanding.
-Please check it and update us. 
-my contact email id is   vikasjagadale123@gmail.com
+I have added all the projects along with the raw data
+If file is unable to view --> then download or Open it into another browser
+my contact email id is  - vikasjagadale123@gmail.com
